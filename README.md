@@ -1,0 +1,1 @@
+Revamp your Event Equipment Rental experience! Our app aims to streamline operations and delight customers. Easily manage stock in real-time, simplify rentals with an intuitive interface, and automate cost calculations. Enhance efficiency and satisfaction with every rental.
